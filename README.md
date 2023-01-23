@@ -1,2 +1,2 @@
-# blog-imgs
-博客图床
+# jav-imgs
+JAV图床
