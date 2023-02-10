@@ -10,7 +10,7 @@
 
 #### JavBus
 
-​	**国内访问**：https://www.javsee.blog
+​	**国内访问**：https://www.javsee.blog/ [击达](https://weibo.com/u/6401253973)
 
 ​	**永久域名**：https://www.javbus.com/
 
