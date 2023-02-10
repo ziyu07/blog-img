@@ -10,20 +10,26 @@
 
 #### JavBus
 
-​	**国内访问**：https://www.javsee.blog/ [击达](https://weibo.com/u/6401253973)
+​	**国内访问**：https://www.javsee.blog/
+                [点击直达](https://www.javsee.blog/)
 
 ​	**永久域名**：https://www.javbus.com/
+                [点击直达](https://www.javbus.com/)
 
 #### JavDB
 
 ​	**国内访问**：https://javdb007.com/
+                [点击直达](https://javdb007.com/)
 
 ​	**永久域名**：https://javdb.com/
+                [点击直达](https://javdb.com/)
 
 #### 绅士漫画
 
 ​	**国内访问**：https://www.hentaicomic.ru/
+                [点击直达](https://www.hentaicomic.ru/)
 
 ​	**永久域名**：https://www.wnacg.com/
+                [点击直达](https://www.wnacg.com/)
 
 
